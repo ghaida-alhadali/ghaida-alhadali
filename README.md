@@ -43,8 +43,8 @@
 ---
 
 ## 📬 Contact Me
-- 📧 **ghaida@example.com**
-- 💼 [LinkedIn](https://www.linkedin.com/in/ghaida-alhadali/) *(add your real link)*
+- 📧 **alhadalig@gmail.com**
+- 💼 [LinkedIn](https://www.linkedin.com/in/ghaida-alhadali/) 
 
 ---
 
